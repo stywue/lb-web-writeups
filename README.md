@@ -1,3 +1,0 @@
-# CYBERPOLIGON
-
-# cyberpoligon
